@@ -4,7 +4,7 @@ telegram账号购买，批发价格最低3.5元一件</p></p>
 ![image](https://github.com/user-attachments/assets/c9bf362d-a85a-466c-bf1f-89f3323b45cc)</p>
 国内、国外号码均有，价格非常低，白菜价。</p>
 
-下面是购买延时及登录视频教程：</p>
+下面是购买演示及登录视频教程：</p>
 https://tgxz.cn/uploads/images/apijc.mp4</p></p>
 
 
